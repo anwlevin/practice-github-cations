@@ -5,8 +5,10 @@
 
 [https://youtu.be/ErNBeDutHR0?si=0vzKQEUg-6Ezrf85](https://youtu.be/ErNBeDutHR0?si=0vzKQEUg-6Ezrf85)
 
-
+```
 ❤️ Ранний доступ к лекциям и к закрытым курсам: https://www.patreon.com/bila_kavaЧтобы не пропускать новые лекции и анонсы мероприятий следите за Белый Кофе ...
+```
 
 
-![1695180659_a-filonenko-kurs-pinokkio-vveden_ErNBeDutHR0.jpg](1695180659_a-filonenko-kurs-pinokkio-vveden_ErNBeDutHR0.jpg)
+
+![1695180788_a-filonenko-kurs-pinokkio-vveden_ErNBeDutHR0.jpg](1695180788_a-filonenko-kurs-pinokkio-vveden_ErNBeDutHR0.jpg)
