@@ -9,4 +9,4 @@
 Лектор - Татьяна Левина, кандидат философских наук, философ, АнтиуниверситетАвангардные живописцы были поражены иконами, в особенности русскими иконами "стар...
 
 
-![1695180427_t-levina-oslepitelnyi-mrak-chern_e0ndxj-ARcg.jpg](1695180427_t-levina-oslepitelnyi-mrak-chern_e0ndxj-ARcg.jpg)
+![1695180668_t-levina-oslepitelnyi-mrak-chern_e0ndxj-ARcg.jpg](1695180668_t-levina-oslepitelnyi-mrak-chern_e0ndxj-ARcg.jpg)

@@ -9,4 +9,4 @@
 ❤️ Ранний доступ к лекциям и к закрытым курсам: https://www.patreon.com/bila_kavaЧтобы не пропускать новые лекции и анонсы мероприятий следите за Белый Кофе ...
 
 
-![1695180433_a-akhutin-kurs-evropeiskii-chelo_lZKWZ23vmSM.jpg](1695180433_a-akhutin-kurs-evropeiskii-chelo_lZKWZ23vmSM.jpg)
+![1695180673_a-akhutin-kurs-evropeiskii-chelo_lZKWZ23vmSM.jpg](1695180673_a-akhutin-kurs-evropeiskii-chelo_lZKWZ23vmSM.jpg)
