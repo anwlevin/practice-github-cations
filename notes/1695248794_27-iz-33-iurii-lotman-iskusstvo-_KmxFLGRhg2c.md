@@ -11,4 +11,4 @@
 
 
 
-![1695180790_27-iz-33-iurii-lotman-iskusstvo-_KmxFLGRhg2c.jpg](1695180790_27-iz-33-iurii-lotman-iskusstvo-_KmxFLGRhg2c.jpg)
+![1695248794_27-iz-33-iurii-lotman-iskusstvo-_KmxFLGRhg2c.jpg](1695248794_27-iz-33-iurii-lotman-iskusstvo-_KmxFLGRhg2c.jpg)

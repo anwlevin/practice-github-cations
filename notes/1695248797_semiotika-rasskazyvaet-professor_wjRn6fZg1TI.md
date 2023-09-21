@@ -11,4 +11,4 @@
 
 
 
-![1695180794_semiotika-rasskazyvaet-professor_wjRn6fZg1TI.jpg](1695180794_semiotika-rasskazyvaet-professor_wjRn6fZg1TI.jpg)
+![1695248797_semiotika-rasskazyvaet-professor_wjRn6fZg1TI.jpg](1695248797_semiotika-rasskazyvaet-professor_wjRn6fZg1TI.jpg)

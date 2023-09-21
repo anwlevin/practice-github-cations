@@ -11,4 +11,4 @@
 
 
 
-![1695180792_platon-kak-master-myshleniia-i-f_ZndJ5dwEVYQ.jpg](1695180792_platon-kak-master-myshleniia-i-f_ZndJ5dwEVYQ.jpg)
+![1695248795_platon-kak-master-myshleniia-i-f_ZndJ5dwEVYQ.jpg](1695248795_platon-kak-master-myshleniia-i-f_ZndJ5dwEVYQ.jpg)

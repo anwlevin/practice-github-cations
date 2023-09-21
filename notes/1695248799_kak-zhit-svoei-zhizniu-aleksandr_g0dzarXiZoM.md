@@ -11,4 +11,4 @@
 
 
 
-![1695180795_kak-zhit-svoei-zhizniu-aleksandr_g0dzarXiZoM.jpg](1695180795_kak-zhit-svoei-zhizniu-aleksandr_g0dzarXiZoM.jpg)
+![1695248799_kak-zhit-svoei-zhizniu-aleksandr_g0dzarXiZoM.jpg](1695248799_kak-zhit-svoei-zhizniu-aleksandr_g0dzarXiZoM.jpg)

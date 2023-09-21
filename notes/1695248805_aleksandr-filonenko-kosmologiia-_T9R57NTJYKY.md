@@ -11,4 +11,4 @@
 
 
 
-![1695180802_aleksandr-filonenko-kosmologiia-_T9R57NTJYKY.jpg](1695180802_aleksandr-filonenko-kosmologiia-_T9R57NTJYKY.jpg)
+![1695248805_aleksandr-filonenko-kosmologiia-_T9R57NTJYKY.jpg](1695248805_aleksandr-filonenko-kosmologiia-_T9R57NTJYKY.jpg)

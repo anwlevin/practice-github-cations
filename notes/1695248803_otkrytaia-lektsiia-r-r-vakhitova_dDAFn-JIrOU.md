@@ -11,4 +11,4 @@
 
 
 
-![1695180800_otkrytaia-lektsiia-r-r-vakhitova_dDAFn-JIrOU.jpg](1695180800_otkrytaia-lektsiia-r-r-vakhitova_dDAFn-JIrOU.jpg)
+![1695248803_otkrytaia-lektsiia-r-r-vakhitova_dDAFn-JIrOU.jpg](1695248803_otkrytaia-lektsiia-r-r-vakhitova_dDAFn-JIrOU.jpg)
