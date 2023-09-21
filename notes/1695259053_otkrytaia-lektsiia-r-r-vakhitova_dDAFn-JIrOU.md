@@ -5,10 +5,14 @@
 
 [https://youtu.be/dDAFn-JIrOU?si=pGDzRjQCQtexlMz0](https://youtu.be/dDAFn-JIrOU?si=pGDzRjQCQtexlMz0)
 
+
+[https://youtu.be/dDAFn-JIrOU](https://youtu.be/dDAFn-JIrOU)
+
+
 ```
 
 ```
 
 
 
-![1695248803_otkrytaia-lektsiia-r-r-vakhitova_dDAFn-JIrOU.jpg](1695248803_otkrytaia-lektsiia-r-r-vakhitova_dDAFn-JIrOU.jpg)
+![1695259053_otkrytaia-lektsiia-r-r-vakhitova_dDAFn-JIrOU.jpg](1695259053_otkrytaia-lektsiia-r-r-vakhitova_dDAFn-JIrOU.jpg)
